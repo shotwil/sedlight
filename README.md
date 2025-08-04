@@ -1,1 +1,0 @@
-Sedkight project
